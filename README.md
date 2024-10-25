@@ -1,0 +1,6 @@
+- 👋 HELLOWWWWWWWW i am Rahma 
+- 👀 I’m interested in alot of things 
+- 🌱 I dream of being a part of a big tec company 
+- 💞️ I’m currently doing HND in computing (hoping to get into a good university for my top up year) 
+- 📫 i use instagram (sometimes) and i look at my mails the most (rahmanadeem911@gmil.com) 
+- ⚡ Fun fact: i love glitter 
